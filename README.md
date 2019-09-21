@@ -1,1 +1,1 @@
-Why hello there. I'm Desmond Tran and I like to play League of Legends, Minecraft, and Apex Legends. I also like to watch anime and cartoons. Some things I like to eat are pho, cup noodles, soy sauce w/ rice.
+Hello there. I'm Desmond Tran and I like to play League of Legends, Minecraft, and Apex Legends. I also like to watch anime and cartoons. Some things I like to eat are pho, cup noodles, soy sauce w/ rice.
